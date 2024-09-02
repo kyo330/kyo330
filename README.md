@@ -1,4 +1,4 @@
-## Hi there 👋 this is PRiyadharshini Ramesh Kumar
+## Hi there 👋 this is Priyadharshini Ramesh Kumar
 
 
 
